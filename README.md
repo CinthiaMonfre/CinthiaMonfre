@@ -1,10 +1,8 @@
 # Cinthia Monfré Villares
 
-Minha jornada de transição de carreira tem sido empolgante e repleta de aprendizados. Com minha experiência em e-commerce e marketplace desde 2013, construí um conjunto valioso de habilidades no campo do e-commerce. Desenvolver meu interesse por projetos e me envolver com a equipe de TI alimentou minha paixão por desafios tecnológicos.
+Minha jornada de transição de carreira tem sido empolgante e repleta de aprendizados. Com minha experiência em e-commerce e marketplace desde 2013, construí um conjunto valioso de soft skills no campo do e-commerce. Desenvolver meu interesse por projetos e me envolver com a equipe de TI alimentou minha paixão por desafios tecnológicos.
 
 Neste ano, estou iniciando meus estudos em programação como parte de minha busca por novas oportunidades e desafios profissionais. Essa transição é uma decisão corajosa, mas estou animada para expandir meus horizontes e explorar um novo campo. Acredito que minhas soft skills, combinada com minhas novas habilidades em programação, me permitirá trazer uma perspectiva única e valiosa para minha futura carreira.
-
-Estou ansiosa para o que o futuro reserva e estou determinado a aproveitar ao máximo as oportunidades que surgirem.
 
 ### Conecte-se comigo
 
